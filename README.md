@@ -5,4 +5,4 @@
 https://meet.google.com/bio-hmps-bpr
 
 ##2023_10_14_早上
-[錄影]https://youtube.com/Live/
+[錄影]https://youtube.com/Live/YWTf5MMuTLY
